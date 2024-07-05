@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oldsix-laoliu
 - 👀 I’m interested in Minecraft
-- 🌱 I’m currently learning grade 4
+- 🌱 I’m currently learning grade 5
 - 💞️ I’m looking to collaborate on Minecraft
 - 📫 How to reach me tobocozhf@outlook.com
 - 😄 Pronouns: cool
